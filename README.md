@@ -1,0 +1,1 @@
+Entao professora, fizemos esse menuzinho basico aqui no nosso site reciclado do LeGatitos, não está do jeito que queriamos ja que nos tentamos fazer tudo do 0. Junto a ele ganhei uma pagina de aniversario da Jeryhane, juro que essa parte eu nao sabia kkkk, lhe desejo um otimo dia e espero que o site tenha cumprido todos os requisitos.
